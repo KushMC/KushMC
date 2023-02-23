@@ -1,1 +1,2 @@
-# KushMC
+- 📢 Fique por dentro das novidades em nosso [Discord](https://discord.kushmc.com/)<br/>
+- 🕹  Conecte-se em nosso servidor: **kushmc.com**
